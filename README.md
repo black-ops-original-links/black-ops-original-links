@@ -34,4 +34,6 @@ Types of Goods Available
 
 For your safety, only use the official verified Black Ops original links: http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion
 
-Update:  09/18/2025 Link is now clickable and functioning
+
+
+Update:  01 October 2025
